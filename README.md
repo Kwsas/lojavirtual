@@ -1,1 +1,3 @@
 # lojavirtual
+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
+texto alterado
